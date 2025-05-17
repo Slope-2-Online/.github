@@ -2,6 +2,8 @@
 
 **Are you ready to conquer gravity in the most thrilling ball racing game ever?** Welcome to **Slope 2**, the **insane 3D endless runner** that will test your reflexes, focus, and courage to the extreme.
 
+## <a href="https://1kb.link/eRCxEj">👉 Click To Play Slope 2 Unblocked Games 👈</a>
+
 ### 🚀 What Is Slope 2?
 
 **Slope 2** is a **hyper-speed arcade game** where you control a glowing ball rolling down a twisting, neon-lit slope full of deadly obstacles. With **gravity-defying ramps**, **rapid turns**, and **unexpected drops**, this game brings an adrenaline-packed challenge that keeps you hooked for hours.
